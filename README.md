@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Prateek and also called TechMaddy
+- 👋 Hi, I’m Prateek and also NickName Tech_Maddy
 - 👀 I’m interested in to make my own startup and increase the growth and development level of india ..
 - 🌱 I’m currently learning the python and after that learning web development
 - 💞️ I’m looking to collaboratio0n through instagram
